@@ -3,4 +3,4 @@
 
 30Romney Meme Project
 
-Quotes from the show "30 Rock" overlaid on pictures of 2012 presidential candidate Mitt Romney
+Quotes from show "30 Rock" character Tracy Jordan overlaid on pictures of 2012 presidential candidate Mitt Romney
